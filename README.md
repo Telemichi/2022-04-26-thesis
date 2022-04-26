@@ -1,6 +1,6 @@
 
 
-# My Thesis
+# My Thesis about librarians
 
-#Hi, I am Michael and i know all the science, nobody knows science better tha men.
+# Hi, I am Michael and i know all the science, nobody knows science better tha men.
  
